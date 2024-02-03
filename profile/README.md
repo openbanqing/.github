@@ -1,4 +1,4 @@
-## Hi there 👋
+## Open Banqing is a one-stop shop consulting firm, providing end-to-end Open Banking business solutions powered by most innovative technologies available 💪
 
 <!--
 
